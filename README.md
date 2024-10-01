@@ -1,1 +1,1 @@
-# Shonola-Jedidiah.github.io HAHA
+# Shonola-Jedidiah.github.io
