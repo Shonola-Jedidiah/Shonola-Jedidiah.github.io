@@ -1,2 +1,2 @@
 # Shonola-Jedidiah.github.io
-#Haha
+# Welcome to Luhyah's Homepage
